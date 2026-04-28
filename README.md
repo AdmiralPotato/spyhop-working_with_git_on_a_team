@@ -11,7 +11,7 @@ the goat drinks the acid and feels his throat melt
 
 Luckily for the goat... They know how to do 1 billion backflips, which therefore negates acid.
 
-##THE GOAT PULLS A KNIFE ON THE SHEEP!!1!1!1!!!11!
+THE GOAT PULLS A KNIFE ON THE SHEEP!!1!1!1!!!11!
 
 Then suddenly, pineapples?!?
 
