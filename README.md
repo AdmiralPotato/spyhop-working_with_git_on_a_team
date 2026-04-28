@@ -59,7 +59,9 @@ And he reached for his gun which he just couldn't find
 'Cause Batman stole it and he shot and he missed
 And Jackie Chan deflected it with his fist
 Then he jumped in the air and he did a somersault
-While Abraham Lincoln tried to pole vault
+While Abraham Lincoln 
+the goat
+tried to pole vault
 Onto Optimus Prime but they collided in the air
 Then they both got hit by a Care Bear stare
 You might also like
