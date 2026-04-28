@@ -7,6 +7,8 @@ Evil and perhaps racist sheep
 
 The sheep pours acid in the goats SODA WHAT!!!!!!! : O
 
+Luckily for the goat... They know how to do 1 billion backflips, which therefore negates acid.
+
 THE GOAT PULLS A KNIFE ON THE SHEEP!!1!1!1!!!11!
 
 Then suddenly, pineapples?!?
