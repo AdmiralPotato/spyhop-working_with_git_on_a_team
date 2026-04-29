@@ -7,6 +7,11 @@ Evil and perhaps racist sheep
 
 The evil sheep then invented the concept of fascism, the sheeps name, benito mussolini.
 in response the goat used its trap card, JOSEPH STALIN?!?!?!?
+the sheep opens a pepsi to piss off the coke fanboy goat.
+the goat drinks a baja blast to establish its status as the alpha sigma male
+the sheep starts microdosing meth in order to out sigma the goat
+the goat surrenders the alpha status as the sheep demonstrates far more toxic masculinity
+the sheep commits to a round of celebratory bonesmashing and looksmaxing
 
 ## The first strike
 
