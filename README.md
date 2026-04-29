@@ -19,6 +19,10 @@ Luckily for the goat... They know how to do 1 billion backflips, which therefore
 
 THE GOAT PULLS A KNIFE ON THE SHEEP!!1!1!1!!!11!
 
+And then the sheeps are like HOSHIT and then they pull out a _slightly bigger knife_.
+
+And the Goat says "You call that a _Knife_? I'll show you a _Knife_!" and pulls out the entire continent of Austraila, spiders and all.
+
 ## Fruit Times
 
 Then suddenly, pineapples?!?
