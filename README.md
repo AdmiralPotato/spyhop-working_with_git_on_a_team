@@ -28,3 +28,7 @@ and mangos because they're better,
 The goat nor the sheep named benito mussolini understood why the fruits had some,
 but they concluded it was an omen of peace. Maybe they should set aside differences, and share in the fruit...
 Maybe everything's gonna be alright.
+
+Nevermind violence is a little needed because the sheep named benito mussolini is too racist and needs to be knocked into the sun, which is exactly what the goat does.
+
+"Thank you the goat!" we all cheer in joy!
