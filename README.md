@@ -23,4 +23,8 @@ THE GOAT PULLS A KNIFE ON THE SHEEP!!1!1!1!!!11!
 
 Then suddenly, pineapples?!?
 
-and mangos because they're better
+and mangos because they're better,
+
+The goat nor the sheep named benito mussolini understood why the fruits had some,
+but they concluded it was an omen of peace. Maybe they should set aside differences, and share in the fruit...
+Maybe everything's gonna be alright.
