@@ -6,6 +6,7 @@ There is a goat and a sheep who are friends... or so we thought..
 Evil and perhaps racist sheep
 
 The evil sheep then invented the concept of fascism, the sheeps name, benito mussolini.
+in response the goat used its trap card, JOSEPH STALIN?!?!?!?
 
 ## The first strike
 
