@@ -17,7 +17,4 @@ Then suddenly, pineapples?!?
 
 and mangos because they're better
 
-hello hello hello hello hello hello hello hello HELLO HELLO HELLO!!!!!! 
-That's a lot of hellos
-
 The evil sheep then invented the concept of fascism, the sheeps name, benito mussolini.
