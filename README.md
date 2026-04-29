@@ -11,7 +11,7 @@ The evil sheep then invented the concept of fascism, the sheeps name, benito mus
 
 The sheep pours acid in the goats SODA WHAT!!!!!!! : O
 
-26th president of the united states theodore rOosevelt tries to warm the goat
+26th president of the united states theodore rOosevelt tries to warn the goat
 
 but the goat is too nonchalant to hear 26th president of the united states theoodore roosevelt
 
